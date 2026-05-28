@@ -314,6 +314,36 @@ _برای شناخت کارها و سبک تفکرم_
 
 ---
 
+## 🤝 نمونه کار های گرافیکی
+
+![alt text](file/CV-Prtfolio-2026_01.jpg)
+![alt text](file/CV-Prtfolio-2026_02.jpg)
+![alt text](file/CV-Prtfolio-2026_03.jpg)
+![alt text](file/CV-Prtfolio-2026_04.jpg)
+![alt text](file/CV-Prtfolio-2026_05.jpg)
+![alt text](file/CV-Prtfolio-2026_06.jpg)
+![alt text](file/CV-Prtfolio-2026_07.jpg)
+![alt text](file/CV-Prtfolio-2026_08.jpg)
+![alt text](file/CV-Prtfolio-2026_09.jpg)
+![alt text](file/CV-Prtfolio-2026_10.jpg)
+![alt text](file/CV-Prtfolio-2026_11.jpg)
+![alt text](file/CV-Prtfolio-2026_12.jpg)
+![alt text](file/CV-Prtfolio-2026_13.jpg)
+![alt text](file/CV-Prtfolio-2026_14.jpg)
+![alt text](file/CV-Prtfolio-2026_15.jpg)
+![alt text](file/CV-Prtfolio-2026_16.jpg)
+![alt text](file/CV-Prtfolio-2026_17.jpg)
+![alt text](file/CV-Prtfolio-2026_18.jpg)
+![alt text](file/CV-Prtfolio-2026_19.jpg)
+![alt text](file/CV-Prtfolio-2026_20.jpg)
+![alt text](file/CV-Prtfolio-2026_21.jpg)
+![alt text](file/CV-Prtfolio-2026_22.jpg)
+![alt text](file/CV-Prtfolio-2026_23.jpg)
+![alt text](file/CV-Prtfolio-2026_24.jpg)
+![alt text](file/CV-Prtfolio-2026-25.jpg)
+
+---
+
 <div align="center">
 
 ### 🌱 و یه حرف آخر
